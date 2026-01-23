@@ -32,7 +32,7 @@ TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal K
 
 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 ; 
 
-LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil
+LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil, Overwatch
 
 𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
 
