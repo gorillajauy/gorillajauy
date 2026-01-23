@@ -28,7 +28,7 @@ _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
     
 𝐌𝐚𝐢𝐧 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 ; 
 
-TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons
+TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville
 
 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 ; 
 
@@ -36,7 +36,7 @@ LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 de
 
 𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
 
-Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Sergio Perez, Jenson Button, Chica, Ballora, Alex, Applejack, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela
+Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Sergio Perez, Jenson Button, Chica, Ballora, Alex, Applejack, Jasmine, Mulan, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela
 
 </div>
 
