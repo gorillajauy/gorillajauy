@@ -1,6 +1,6 @@
 <div align="center">
 
-  [Hi people!](![](https://komarev.com/ghpvc/?username=gorillajauy&color=green))
+ ![Hi people!](![](https://komarev.com/ghpvc/?username=gorillajauy&color=green))
   
 **【 ｃａｌｌ ｍｅ 𝐊𝐢𝐦𝐛𝐞𝐫𝐥𝐲 】**
 
