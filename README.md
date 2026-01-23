@@ -1,16 +1,49 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**gorillajauy/gorillajauy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  [Hi people!](https://komarev.com/ghpvc/?username&style=gorillajauy&color=blue)
+  
+**【 ｃａｌｌ ｍｅ 𝐊𝐢𝐦𝐛𝐞𝐫𝐥𝐲 】**
 
-Here are some ideas to get you started:
+>also known as : Charlotte, Katherine, Kim, Jauy, Zaynya
+  
+THAI ┇ eng / th  ⌇  artist
+_<sub>[art acc](https://www.instagram.com/whenkimisnotkiming?igsh=aHppM2Vna3lpaTlu)</sub>_
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+_𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
+
+˚୧‿ 100% 𝘍𝘳𝘪𝘦𝘯𝘥𝘭𝘺 ｡:∞♡* ᴄ+ʜ ᴡᴇʟᴄᴏᴍᴇ, ɪ ᴅᴏɴᴛ ʙɪᴛᴇ !! ᵕ˚∗
+
+>**⚠︎  ⇁ 𝗉𝗅𝖾𝖺𝗌𝖾 do not cover, 𝖼opy 𝗈𝗋 𝗂𝗇𝗌𝗉𝗈 𝗎𝗇𝗅𝖾𝗌𝗌 friends with permission**
+
+
+—————————————————————————————————————————————————————————
+</div>
+
+<div align="center">
+
+**【﻿Ａｂｏｕｔ　ｍｅ】**
+  </div>
+  
+  <div style="margin-left">
+    
+𝐌𝐚𝐢𝐧 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 ; 
+
+TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Formula 1, FnaF, Stardew Valley, MLP
+
+𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 ; 
+
+LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil
+
+𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
+
+Katarina, Lili, Lisa Pearson, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Sergio Perez, Jenson Button, Chica, Alex, Applejack, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela
+
+</div>
+
+<div align="center">
+  
+**【ＤＮＩ】**
+
+**_16 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers_**
+
+</div>
