@@ -2,7 +2,7 @@
 
  ![Hi people!](https://komarev.com/ghpvc/?username=gorillajauy&color=green)
   
-**【 ｃａｌｌ ｍｅ 𝐊𝐢𝐦𝐛𝐞𝐫𝐥𝐲 】**
+**【 𝙷𝚒 𝚙𝚎𝚘𝚙𝚕𝚎 !,  call me 𝐊𝐢𝐦𝐛𝐞𝐫𝐥𝐲 】**
 
 >also known as : Charlotte, Katherine, Kim, Jauy, Zaynya
   
