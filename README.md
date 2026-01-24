@@ -35,7 +35,6 @@ TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal K
 LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil, Overwatch, Adventure time, Girl from nowhere, Monster high
 
 𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
-
 (𝘀𝗼𝗺𝗲 𝗜 𝗵𝗮𝘀 𝗮𝘀 𝘀𝗸𝗶𝗻𝘀)
 
 Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Sergio Perez, Jenson Button, Chica, Ballora, Alex, Applejack, Jasmine, Mulan, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela
