@@ -30,7 +30,7 @@ _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
     
 𝐌𝐚𝐢𝐧 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 ; 
 
-TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville
+TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Attack on Titan, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville
 
 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 𝐚𝐧𝐝 𝐟𝐨𝐥𝐥𝐨𝐰 ; 
 
