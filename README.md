@@ -43,7 +43,7 @@ Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly 
 
 𝐒𝐡𝐢𝐩𝐬? ;
 
-I don't do lots of ships, but I do ship John x Lisa, Ellis x Zoey, Jett x Phoenix and I'm a big fan of Iso x Clove
+I don't do lots of ships, but I do ship John x Lisa, Ellis x Zoey, Jinx x Ekko, Jett x Phoenix and I'm a big fan of Iso x Clove
 
 </div>
 
