@@ -22,6 +22,8 @@ _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
 <div align="center">
 
 **【﻿Ａｂｏｕｔ　ｍｅ】**
+
+ <sub>[more that you should know !](https://gorillajauy.bearblog.dev/)
   </div>
   
   <div style="margin-left">
