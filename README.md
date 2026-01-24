@@ -30,7 +30,7 @@ _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
 
 TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville
 
-𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 ; 
+𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 𝐚𝐧𝐝 𝐟𝐨𝐥𝐥𝐨𝐰 ; 
 
 LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil, Overwatch, Adventure time, Girl from nowhere, Monster high
 
