@@ -48,6 +48,7 @@ I don't do lots of ships, but I do ship John x Lisa, Ellis x Zoey, Jinx x Ekko, 
 </div>
 
 <div align="center">
+ 
 —————————————————————————————————————————————————————————
  
 **【ＤＮＩ】**
