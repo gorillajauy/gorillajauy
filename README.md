@@ -7,7 +7,7 @@
 >also known as : Charlotte, Katherine, Kim, Jauy, Zaynya
   
 THAI ┇ eng / th  ⌇  artist
-_<sub>[art acc](https://www.instagram.com/whenkimisnotkiming?igsh=aHppM2Vna3lpaTlu)</sub>_
+_<sub>[art acc](https://www.instagram.com/whenkimisnotkiming?igsh=aHppM2Vna3lpaTlu)</sub>_ , a very very few cosplays
 
 _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
 
