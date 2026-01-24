@@ -39,12 +39,16 @@ LoL, Arcane, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 de
 
 Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Sergio Perez, Jenson Button, Chica, Ballora, Alex, Applejack, Jasmine, Mulan, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela
 
+𝐒𝐡𝐢𝐩𝐬? ;
+
+I didn't do ships much, but I ship John x Lisa, Jett x Phoenix and I'm a big fan of Iso x Clove
+
 </div>
 
 <div align="center">
   
 **【ＤＮＩ】**
 
-**_16 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers_**
+**_15 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers_**
 
 </div>
