@@ -43,12 +43,13 @@ Katarina, Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly 
 
 𝐒𝐡𝐢𝐩𝐬? ;
 
-I dodn't do ships much, but I ship John x Lisa, Jett x Phoenix and I'm a big fan of Iso x Clove
+I don't do lots of ships, but I do ship John x Lisa, Ellis x Zoey, Jett x Phoenix and I'm a big fan of Iso x Clove
 
 </div>
 
 <div align="center">
-  
+—————————————————————————————————————————————————————————
+ 
 **【ＤＮＩ】**
 
 **_15 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers_**
