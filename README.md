@@ -53,6 +53,6 @@ I don't do lots of ships, but I do ship John x Lisa, Ellis x Zoey, Jinx x Ekko, 
  
 **【ＤＮＩ】**
 
-**_15 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers_**
+**_15 years old or below, F1 Shippers ( just respect their girlfriends please ), Proshippers, Non-Sharing yume shippers_**
 
 </div>
