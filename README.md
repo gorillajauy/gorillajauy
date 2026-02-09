@@ -39,7 +39,7 @@ LoL, Arcane, Teen titans, Identity V, Warhammer 40k, Squid Game, Formula 1 acade
 𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
 (𝘀𝗼𝗺𝗲 𝗜 𝗵𝗮𝘃𝗲 𝗮𝘀 𝘀𝗸𝗶𝗻𝘀)
 
-Katarina, Lee,  Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Porco, Annie, Jean, Sergio Perez, Zhou Guanyu, Jenson Button, Chica, Ballora, Alex, Applejack, Jasmine, Mulan, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela, Cyborg
+Katarina, Lee,  Lili, Leo, Lisa Pearson, Tarot Lady, Chun-li, Laura Matsuda, Kimberly Jackson, Sindel, Sektor (MK1), Roxie, Deadlock, Clove, Iso, Tejo, Veto, Waylay, Harbor, Anne of cleves, Porco, Annie, Jean, Sergio Perez, Zhou Guanyu, Jenson Button, Chica, Ballora, Alex, Applejack, Jasmine, Mulan, Akali, Marcus, Barmaid, Batter, Saint Celestine, Min-su, Amna al Qubaisi, Ellis, Steven Grant, Tsireya, Daniela, Cyborg, Yuri, Cleo de nile
 
 𝐒𝐡𝐢𝐩𝐬? ;
 
