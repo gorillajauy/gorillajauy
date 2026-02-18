@@ -34,7 +34,7 @@ TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal K
 
 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢 𝐤𝐧𝐨𝐰 𝐚𝐧𝐝 𝐟𝐨𝐥𝐥𝐨𝐰 ; 
 
-LoL, Arcane, Teen titans, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil, Overwatch, Adventure time, Girl from nowhere, Monster high
+LoL, Arcane, Teen titans, Identity V, Warhammer 40k, Squid Game, Formula 1 academy, Left 4 dead, Moonknight and some other MARVEL series, Avatar, Dead by Daylight, Resident Evil, Overwatch, Adventure time, Girl from nowhere, Monster high, SCP
 
 𝐌𝐚𝐢𝐧𝐬 🙴 𝐟𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐭𝐞𝐫𝐬 ; 
 (𝘀𝗼𝗺𝗲 𝗜 𝗵𝗮𝘃𝗲 𝗮𝘀 𝘀𝗸𝗶𝗻𝘀)
