@@ -30,7 +30,7 @@ _𝗢𝗳𝘁𝗲𝗻 𝗔𝗙𝗞 ! so always 𝘄2𝗶 ._
     
 𝐌𝐚𝐢𝐧 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ; 
 
-TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Attack on Titan, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville, Bundesliga
+TEKKEN, FAITH: the unholy trinity, No. I'm not a human, Street Fighter, Mortal Kombat, RoV, Valorant, SIX the musical, Attack on Titan, Formula 1, FnaF, Stardew Valley, MLP, Disney cartoons, Wolvesville, Bundesliga, Minecraft args
 
 𝐓𝐡𝐢𝐧𝐠𝐬 𝐈'𝐦 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐞𝐝 𝐢𝐧 𝐚𝐧𝐝 𝐟𝐨𝐥𝐥𝐨𝐰 ; 
 
